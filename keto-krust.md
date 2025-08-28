@@ -9,7 +9,7 @@ Below is a simple, gluten‐free, and vegan pie crust recipe using coconut flour
 - **Wet Ingredients:**  
   • 1/2 cup solid coconut oil (chilled) *(or use melted coconut oil, but solid works best for flakiness)*  
 - **Dry Ingredients:**  
-  • 3/4 cup coconut flour (sifted)  
+  • some** coconut flour - add wait, add wait, flour will take some time to absorb  
   • 1/4 teaspoon salt  
 - *(Optional: For a slightly sweet crust, add 1–2 tablespoons of your preferred sweetener and/or 1/2 teaspoon vanilla extract.)*
 
